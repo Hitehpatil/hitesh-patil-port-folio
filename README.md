@@ -41,3 +41,12 @@ Copyright:
 - Do not use this template for commercial purposes without permission.
 
 Last Updated:aug 11,2023 [Date]
+
+![image](https://github.com/Hitehpatil/hitesh-patil-port-folio/assets/140955072/103eb24b-f4f0-4434-8cb5-10b0e0c05952)
+![image](https://github.com/Hitehpatil/hitesh-patil-port-folio/assets/140955072/23985f84-8a6a-4df8-bc2b-3063aba97938)
+![image](https://github.com/Hitehpatil/hitesh-patil-port-folio/assets/140955072/a19bf656-ab13-4bab-afd3-e511ee38017b)
+![image](https://github.com/Hitehpatil/hitesh-patil-port-folio/assets/140955072/84b3695b-5c58-4583-9a4d-a59940138d17)
+![image](https://github.com/Hitehpatil/hitesh-patil-port-folio/assets/140955072/e1ac9f52-531f-4112-a204-043811bcd2eb)
+
+
+
